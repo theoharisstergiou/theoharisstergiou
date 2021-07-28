@@ -6,3 +6,4 @@
 - 💬 Ask me about anything.
 - 📫 How to reach me: xarhsstergiou@outlook.com
 - 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am a musician and a cinephile.
